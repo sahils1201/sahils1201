@@ -11,7 +11,6 @@
 
 - 📫 How to reach me **sahilsable737@gmail.com**
 
-- ⚡ Fun fact **You think you're funny? You're not**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
